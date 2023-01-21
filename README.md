@@ -1,3 +1,3 @@
 # Zola Games
 
-Zola Games is a place where mini-game lovers can have a great time playing thousands of games while creators can publish their games and make an income from advertisements.
+Welcome to the Zola Games, the premier destination for all your mini-game needs. With new games added every day, there’s always something new and exciting to play. And the best part? It’s completely free to play!
