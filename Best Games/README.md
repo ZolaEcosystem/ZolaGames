@@ -8,6 +8,8 @@ https://zolagames.online/ninjawesome/fullscreen/
 https://zolagames.online/boxing-star/fullscreen/
 https://zolagames.online/snow-trial/fullscreen/
 https://zolagames.online/roar-of-city/fullscreen/
-
+https://zolagames.online/car-vs-cop/fullscreen/
+https://zolagames.online/blocky-highway-traffic-racing-race/fullscreen/
+https://zolagames.online/save-the-bear/fullscreen/
 
 *Note: The above games are not ranked.
